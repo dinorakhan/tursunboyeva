@@ -1,0 +1,2 @@
+# tursunboyeva
+dasturlash
